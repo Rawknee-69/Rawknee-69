@@ -22,6 +22,7 @@ Hey Srijan and my hobbies are playing games, watching anime, reading manga, and 
 <br><br>
 ‎ 
 ‎ 
+‎ 
 ## **💻 Experience**
 <a href="https://github.com/Rawknee-69"><img align="left" width="100" src="./images/cry.png"></a>
 I'm currently at home thinking about joining a college 😅. So, yeah i will be college by next year, and I am still learning most of the life lessons. I don't have anything special, but I hope to be able to change that in the future. You can check out the latest project iam working on [Anifusion](https://anifusion.in).
