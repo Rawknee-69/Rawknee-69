@@ -38,7 +38,7 @@ I'm currently at home thinking about joining a college 😅. So, yeah i will be 
 </p>
 
 ## **🧋Cutie Counter**
-<a href="https://discord.com/users/738748102311280681"><img align="right" width=400 src="https://count.getloli.com/get/@Rawknee-69?theme=rule34"></a>
+<a href="[https://discord.com/users/738748102311280681](https://discord.com/users/778460273073848342)"><img align="right" width=400 src="https://count.getloli.com/get/@Rawknee-69?theme=rule34"></a>
 <a href="https://github.com/Rawknee-69"><img align="left" width="100" src="./images/cuite.png"></a>
 
 ```yaml
