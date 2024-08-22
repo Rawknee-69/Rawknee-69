@@ -10,7 +10,7 @@
 
 ### Hi!👋 I'm RemY🍊
 
-**A Outstanding Weeb Developer and Gamer** 
+**A Outstanding Weeb , Developer and Gamer** 
 
 
 ## **☕ About me**
