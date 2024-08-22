@@ -6,7 +6,6 @@
 
 ![Preview](./images/bg.webp)
 
-
 ### Hi!👋 I'm RemY🍊
 
 **A Outstanding Weeb , Developer and Gamer** 
