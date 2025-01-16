@@ -17,7 +17,7 @@
 ‎ 
 ‎ 
 <a href="https://rawknee-69.github.io/prof/"><img align="left" width="100" src="./images/hehe.png"></a>
-Hey Srijan and my hobbies are playing games, watching anime, reading manga, and sometimes tinkering with random stuff like Touching some grass.
+**Hey, I'm Srijan. My hobbies include playing games, watching anime, reading manga, and occasionally tinkering with random stuff, like touching some grass.**
 <br><br>
 ‎ 
 ‎ 
