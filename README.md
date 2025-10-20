@@ -45,6 +45,9 @@ People who visit my profile :<3.
 Hehe~ another cutie has been caught stalking my profile 😏.
 ```
 <!-- <br><br><br><br> -->
+
+[![An image of @rawknee69's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/rawknee69)](https://holopin.io/@rawknee69)
+
 ## **📫 Contact**
 <a href="https://github.com/Rawknee-69"><img align="right" width="100" src="./images/ahh!.png" /></a>
 **Please Contact me on Discord for a quick response:** [RemY](https://discord.com/users/778460273073848342)
